@@ -13,5 +13,5 @@
 ⛓️@rsdekkers
 
 
-![](https://media1.tenor.com/m/hnlXX55LTHgAAAAC/ah-ah-ha.gif)
-![](https://media1.tenor.com/m/vBQYAk_0vvEAAAAC/attack-on-titan-eren-yeager.gif)
+![](https://media1.tenor.com/m/jKf47se2ud8AAAAd/zoro-zoro-one-piece.gif)
+[](!https://media1.tenor.com/m/pm0C2aGBPDcAAAAd/one-piece-luffy.gif)
