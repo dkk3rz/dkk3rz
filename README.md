@@ -1,4 +1,4 @@
-## Oiee queridas!! Oi homens.
+## Oiee queridas💟 !! Oi homens🤝.
 
 
 **dkk3rz/dkk3rz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
